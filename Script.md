@@ -31,3 +31,6 @@ The end.
 * Unicorn King: Alan
 * Zookeeper: Braus
 * Friendly Koala: Mike
+* The bear: Aakash
+* The Cat: Alirie
+* The Cheetah: Duncan
