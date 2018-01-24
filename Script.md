@@ -13,7 +13,7 @@ Normally George would have walked down Bleaker street, but today there was const
 
 Being on time was not one of George’s specialities today would prove to be no different.
 As he mooved slowly.
-As he walked behind the zoo he could see the trees and thick floage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
+As he walked behind the zoo he could see the trees and thick floage growing above the heavy stone wall that ran behind the zoo and hear the sounds of animals in the distance.
 George had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
@@ -22,14 +22,11 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-<<<<<<< HEAD
 George met the Unicorn King who granted him magic powers and also the power of getting more magic powers.
-=======
 And many other things happened when out of nowhere other things happened because Raptor Jesus got in the scene, but it died for the sake of something and noone 
 noticed their existance.
 
 George met the Unicorn King who granted him magic powers.
->>>>>>> zookeaper
 The end.
 
 ## Cast
