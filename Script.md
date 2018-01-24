@@ -22,6 +22,9 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
+And many other things happened when out of nowhere other things happened because Raptor Jesus got in the scene, but it died for the sake of something and noone 
+noticed their existance.
+
 George met the Unicorn King who granted him magic powers.
 The end.
 
