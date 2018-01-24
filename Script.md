@@ -13,8 +13,8 @@ Normally George would have walked down Bleaker streat, but today there was const
 
 Being on time was not one of George’s specialities today would prove to be no different.
 As he mooved slowly.
-As he walked behind the zoo he could see the trees and thick floiage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
-George had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
+As he walked behind the zoo he could see the trees and thick floage growing above the heavy stone wall that ran behind the zoo and hear the sounds of animals in the distance.
+Pedro had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
 Normally George would leave well enough alone, but he was worried that an animal might escape.
